@@ -1,0 +1,2 @@
+# premium-hide-brain-tan-001-brain-tanning-hide-smoke-cur
+Tired of losing track of which hide is soaking, which is drying, and which is ready for the smoke? Your first brain-tan hide deserves a system that doesn't let you forget a single cure step.  The Brain Tanning Hide &amp; Smoke Cure Craft Hub is the first Notion template designed specifically for the entire hide-brain-tan workflow—from fleshing to smoki
